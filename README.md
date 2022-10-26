@@ -1,2 +1,2 @@
 # TrueRus
-True about russkiy цщкдв
+True about russkiy world
